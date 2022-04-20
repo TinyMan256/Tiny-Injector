@@ -1,5 +1,4 @@
 # Tiny-Injector
-feel free to contact me on discord:
-https://discord.gg/EGTHcaQwDQ
-https://discord.gg/cXMn83UNUT
-https://discord.gg/GJyCPuR
+Discord: Tiny Man#0200  
+Discord: Tiny Man#9899  
+Join Unknown Cheaters if you need any help : https://discord.gg/MKxrtessSF
